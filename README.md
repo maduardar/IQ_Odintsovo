@@ -1,1 +1,1 @@
-# IQ_Odintsovo
+# IQ-центр
